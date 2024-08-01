@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @skandamp-sudo
+- 👀 I’m interested in Ethical hacking and bug hunting
+- 🌱 I’m currently learning Artificial intelligence and machine learning 
+- 💞️ I’m looking to collaborate on Any good projects
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I look like a computer geek, but trust me I don't know anything about computers :).
